@@ -9,7 +9,7 @@ published: true
 meta:
   _edit_last: '4'
   dsq_thread_id: '653151433'
-  nothing: 1
+  nothing: 3
 author: sirsean
 ---
 For years, the Twins have had demons in New York. Bats go silent; pitches get fat; calls don't go their way; in the rare case they have a lead, they let it get away. The fans and media have long suspected that the Twins' abysmal record against the Yankees over the past decade has been due to the supposed fact that the Yankees are in the Twins' heads.
