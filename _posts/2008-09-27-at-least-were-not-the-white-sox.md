@@ -1,0 +1,11 @@
+---
+layout: post
+title: At Least We're Not the White Sox
+tags: []
+status: publish
+type: post
+published: true
+meta: {}
+author: sirsean
+---
+Talk about a letdown. The Twins came out flat last night, and it looked like they couldn't wait for their at bats to be over so they could eagerly jog back to the dugout. That's not exactly the attitude I'd like to see in the heat of a pennant race.<br /><br />Mauer got his hits and they didn't help. Morneau continues to play like he doesn't want to be the MVP. Span/Casilla/Gomez looked like a bunch of rookies. Liriano apparently thought it was April again. Nothing went right for us last night in that brutal defeat.<br /><br />Except one thing -- the White Sox also lost to the Indians. They put up a whole lot more fight ... but still fell 11-8. And for all you Twins fans out there who are down on the Twins, know this: <a href="http://www.chicagotribune.com/sports/baseball/whitesox/chi-27-downey-white-sox-indians-sep27,0,4260076.column">it could be worse</a>. The White Sox "fans" at New Comiskey US Cellular Field Stadium were booing their team in the top of the first inning, and didn't stop all game, despite the attempted comeback and the close game. We may have felt too good after sweeping the Sox and set ourselves up for a fall, but the Sox have apparently been broken. And Chicagoans, like rats, are the first to abandon ship.<br /><br />And I heard tell that MLB has decided to change the time of the Twins game today. Instead of starting the game at 7, they're starting it at 3. I'm guessing this has to do with Fox's Mega Bribe of MLB, and that since this is an important game they have to do everything they can to minimize the number of people who are able to watch it. Since the game starts before 6, I won't be able to watch it on MLB.TV, and they'll be showing the Cubs on Fox here in Chicago. It's immensely frustrating, as I'm sure you can imagine. I feel like it's Sunday, when I have to watch the Bears (or Hallmark made for TV movies) instead of the Vikings every week. I thought this was America!<br /><br />Okay Twins. It's back to must-win time. We can't hang our hats on that thrilling extra innings win on Thursday, even though every player seems to think it was the peak of their careers.<br /><br />Go Twins.<br />

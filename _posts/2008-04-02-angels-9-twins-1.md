@@ -1,0 +1,15 @@
+---
+layout: post
+title: Angels 9 Twins 1
+tags: []
+status: publish
+type: post
+published: true
+meta: {}
+author: FunBobby
+---
+The game got off to a terrible start as the Angels ripped pretty much everything Boof threw in the first inning.  Even the outs were hit hard. After a leadoff double in the second, he reall seemed to settle down. He didn't give up any more runs until the 5th, and the pitched a scoreless 6th before being taken out. His final line 6ip, 8H, 4R(3 ER), 4Ks and 0BB. Not to bad for his first time back against a good hitting Angels team. The bullpen on the other hand was not good. Crain pitched for the first time since last summer and gave up a run in 2/3 of an inning. Followed by Reyes, who threw two pitches to Anderson and gave up a hit. His night was over quickly. Then Brian Bass came in and gave up 2 runs (1 earned). He didn't look good. He had the bases loaded at one point and prevented a run by throwing home to force out the runner on a chopper right back to him. Some would say he should have turned and fired to second for the double play, but it would be hard to double up Figgins and Matthews, Jr (especially since Matthews has steroids that make him run fast). Rincon didn't fare much better in his first appearance.  In fact he fared much worse. There are really only three guys in the pen I trust. Guerrier, Neshek and Nathan.  With the game within reach after Bonser left, why not use Guerrier to start the 7th? Maybe Gardy trusts Crain and his bum shoulder more than Guerrier. The game was still in reach at that point.
+
+The offense was downright awful. The only real bright spot was DY, who had 3 hits and scored the only run of the game. Gomez had some pretty good at bats. He wasn't up there hacking like people said he would. He had a nice single at the end of the game but Mauer drilled one right at the SS (or 2b, I don't recall) for an easy DP. That seemed to be the story all night. We had something like 17 groudball outs. Gomez hit a ball deep in the hole at short and almost beat it out, but the Angels have a very good infield defense and we were unable to sneak anything by them.  We were facing Jon Garland, a pitcher who we have faced a lot in the past so our inability to do nothing against him was just downright pathetic. I guess we have lots of new bats in the lineup, but Garland is far from special. Oh well, not like we were going to go undefeated all year.  I wish Torii the best, but it would be great if he went hitless against us all year. 
+
+On a sidenote, late in the game Punto went out to warm up the pitcher while Mauer put his gear on (and Redmond did something much more fun, I'm assuming).  As he ran back to the dugout, and old lady sitting behind me yelled "Good job, Nicky!". Do people love him so much that they will cheer for him when he does anything.  I think I saw him  hand a glass of gatorade to Boof, should I make a sign?  The guy is a utility infielder.  I'm pretty sure opposing fans who come to the dome think we are the dumbest fans ever. "Why are they cheering that bat boy after he warmed up Brian Bass?"  Also, the wave? come on, its 2008. Stop it.

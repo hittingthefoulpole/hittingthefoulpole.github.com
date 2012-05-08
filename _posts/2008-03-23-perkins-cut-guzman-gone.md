@@ -1,0 +1,11 @@
+---
+layout: post
+title: Perkins Cut, Guzman Gone
+tags: []
+status: publish
+type: post
+published: true
+meta: {}
+author: sirsean
+---
+The Twins made a <a href="http://www.startribune.com/sports/twins/16938241.html">couple of moves</a> today, both of which seem somewhat questionable. First, they sent Perkins down to AAA. I had expected Perkins to be given the chance to fight for the 5th spot in the rotation, with his fallback being to start the season in the bullpen as a lefty long-reliever. I haven't heard any word yet on what the plan is for Perkins, or how long the expect him to remain at AAA. <a href="http://ww3.startribune.com/blogs/neal/2008/03/23/perkins-cut/">According to LEN3</a>, the feeling in the organization is that he needs consistent work after taking most of last year off due to injury. We'll see.<br /><br />The other move made today was to trade Garrett Guzman to the Nationals. They selected him in the Rule 5 draft, and at the time I'd hoped that their glut of outfielders would make it impossible for Guzman to make the team, thus returning him to the Twins. That appears to have happened, and the Nationals wanted to send him down to the minors. When they offered him back to the Twins, however, we turned him down in favor of a lowly player to be named later.<br /><br />Guzman was easily one of the best hitters in the minor league system last year, and giving up on him like this is surprising. It's almost impossible that we'll get equal value in return, in the form of this PTBNL. There are a few possibilities here:<br /><ul><li>There are enough outfielders at the major league level for the foreseeable future that we don't need Guzman</li><li>He's blocked at AAA by 2 of Span/Gomez/Pridie</li><li>They want to clear out the OF at AAA for the possible advancement of Martin/Benson/Parmelee/Revere, possibly expecting one or more of them to do well this year</li></ul>If these are true, then the move is at least forgivable. Especially if we get a decent hitter in return. But I'd still like a valid explanation from Wild Bill about why he was so quick to toss away one of the best hitters on the farm. While he may not have been that great, objectively, you can't just throw your guys away like that.<br />

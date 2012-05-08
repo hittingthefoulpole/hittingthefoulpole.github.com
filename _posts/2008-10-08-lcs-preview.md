@@ -1,0 +1,38 @@
+---
+layout: post
+title: LCS Preview
+tags: []
+status: publish
+type: post
+published: true
+meta:
+  _edit_last: '2'
+author: FunBobby
+---
+<div>
+<p>After an uneventful LDS preview (we are ignoring the fact that I finished dead last), firegardy.com moves on to take a closer look at the ALCS and NLCS. When making our picks we probably should have realized that no LDS has gone to five games in the last like five years, and there's always at least one sweep. Oops. Now that the useless Chicago teams are out of the picture, let's see if we fare any better.</p>
+<p><strong>ALCS</strong></p>
+<p><strong>Boston Red Sox vs. Tampa Bay Rays</strong></p>
+<p><strong></strong></p>
+<p>sirsean:</p>
+<p>This is a tough one to call; the "surprising" Rays featuring youth and talent matches up against their divisional rival Red Sox, featuring experience and the favor of the league. I would have pointed out that the Rays went 10-8 against the Red Sox this season, showing complete dominance at home; however, the Angels had dominated the Red Sox this season even more than that and were quickly overmatched and ousted by ESPN's Team. Still, I think it's extremely valuable that the Rays have home field advantage thanks to their ability to hold off the Red Sox down the stretch, and I think they use their advantage in their terror dome to take the series. The Rays' young core of hitters, solid rotation and lights out bullpen should hold up here, and everyone knows Boston's less-young group will do the same. Should be an exciting series.</p>
+<p><em>Rays in six.</em></p>
+<p><strong></strong></p>
+<p>FunBobby:</p>
+<p>The Rays were 8-1 at home against the Red Sox, while the Red Sox were 7-2 against the Rays in Boston.  I really like the way the Rays play, and I don't think their inexperience will really hurt them too much.  Remember when they brawled with the Sox on at least one occasion this season? They aren't afraid or intimidated by those thugs from Boston.  They have confidence, and won't fold.  Their young pitching is there, and the lineup is no slouch.  They have several guys they can use in the RF/DH slot in Gabe Gross, Rocco Baldelli, and Cliff Floyd, depending on the pitching matchups.  How many teams can say they have a legit basestealing threat in the five hole (Carl Crawford)? Not many.  Their speed really showed in the game against the other Sox on monday.  Crawford walked (I think) and was really bothering Clayton Richard.  He threw over what seemed like dozens of times.  Cliff Floyd then doubled to deep left, scoring Crawford easily (Crawford actually stopped at second, then cruised home).</p>
+<p>The Red Sox have the experience.  They are defending World Series champs, have a good starting pitching, and a great lineup.  They seem to have a lot of trouble playing in Tropicana Field, along with the rest of the league.  Lester and Dice-K proved to be a great 1-2 punch against the Angels, and you can never count out Beckett, even if he pitched poorly in the ALDS.   I like the Rays here because of their homefield advantage, and their speed, which should be able to throw off the Red Sox pitchers enough to win.</p>
+<p><em>Rays in six.</em></p>
+<p><strong>NLCS</strong></p>
+<p><strong></strong></p>
+<p><strong>Los Angeles Dodgers vs. Philadelphia Phillies</strong></p>
+<p>sirsean:</p>
+<p>Manny Ramirez "carried" the Dodgers into the playoffs (or more accurately, was there when the rest of the team started playing better), and continued to have the same effect in the postseason: namely, he drew a bunch of walks then snuck some homers over the wall when his team already had a big lead in the middle innings. If his name were A-Rod, those home runs wouldn't have counted; fortunately for Manny, he's just Manny, so those homers count and put him at 26 postseason homers in his career. Most ever. Pretty good. Also pretty good are Matt Kemp, Andre Ethier, Russell Martin, and James Loney, who have been doing all the offensive work in this series. I think they'll fall back a little bit ... but it'll be counteracted by the Phillies' pitching (which isn't terribly impressive outside of Hamels) and ballpark (I think <em>I</em> might be able to hit one out in that place). At the same time, the Dodgers' pitching staff has been looking excellent, and have done a great job of shutting down Ryan Howard. I don't know if that'll continue (probably), but their penchant for throwing sinkers and keeping the ball in the strike zone should be very helpful against the powerful Phillies lineup. The Dodgers are probably the best team in the NL right now -- they played the best down the stretch, are scoring plenty of runs, and just absolutely dominated the formerly impressive Cubs.</p>
+<p>Meanwhile, the Phillies have one of the more impressive lineups in the NL, featuring Jimmy Rollins, Chase Utley, Ryan Howard, and Pat Burrell. These stars didn't actually do very much during the NLDS -- which probably means they're due for a resurgence in this series. I expect at least one game in which those guys prove to be a sort of poor man's murderer's row and the Dodgers struggle to get them out. However, they swing and miss way too much to be consistent in that regard, and I doubt they'll produce daily against good pitching. Pitching-wise, Cole Hamels is a true ace and Brad Lidge has been one of the best closers in baseball this year (though he's starting to look shaky in the playoffs -- and is anyone else excited to see the look on his face when he faces Manny Ramirez in the 9th inning? Shades of Pujols). Beyond them, however, they have Brett Myers, Jamie Moyer, and dregs. Myers pitched a good game against the Brewers, and I don't see that happening again. The Dodgers should feast on the lower half of the Phillies' pitching staff. And remember that the only reason the Phillies even made the playoffs is because Ryan Howard killed another September (does anyone else get the feeling he just feasts on September callups like they're Subway sandwiches?) and the Mets collapsed again.</p>
+<p><em>Dodgers in five.</em></p>
+<p>FunBobby:</p>
+<p>The Dodgers looked very impressive against some dudes wearing Cubs jerseys during the NLDS.  This round they will actually have to face a major league baseball team in the Phillies.  LA was carried by their young talent (Martin, Loney, etc.) against the Northsiders, and I think they will be carried again by these guys in the LCS.  Manny will always be a threat, and I think Philly will do their best to pitch around him, especially when playing in the bandbox that is Citizens Bank Ballpark.  I don't see homefield advantage being nearly as important as in the ALCS, but it always plays a role.</p>
+<p>Lowe and Billingsley are great at the top order, while Kuroda is a nice option as the third starter.  I'm told by the band of idiots baseball tonight puts on TV (Steve Phillips, Jon Kruk, etc.) that he was a "big game pitcher" in Japan.  Whatever that means.  With Jonathon Broxton closing out games for Torre, the starters should feel confident handing the game over to the bullpen with a lead.</p>
+<p>The Phillies pitchers did a good job shutting down a very good Brewers lineup, and I agree that Hamels is really the only one you can count on, but if the Brett Myers that pitched last week shows up, the Phillies get another high quality starter.  The Dodgers would be wise to make sure Derek Lowe pitches in Philly because he is a groundball pitcher and should be able to minimize the damage that Howard and Co. do via the longball.  If the Phillies can get a lead to their bullpen, they should be in great shape.  This is a very hard series to determine because both teams are strong.</p>
+<p><em>Dodgers in six.</em></p>
+<p><em></em></p>
+</div>

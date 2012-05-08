@@ -1,0 +1,11 @@
+---
+layout: post
+title: Let's talk about Livan
+tags: []
+status: publish
+type: post
+published: true
+meta: {}
+author: FunBobby
+---
+So Livan Hernandez is our opening day starter. Probably.  When we first signed him, I thought, "Great, a back of the rotation starter who can chew up innings and only be slightly below average".  Now that we are at the end of spring training we have "Great, a god awful front of the rotation starter who everyone wants to chew up innings, but he will do so with around a 6 era".  If Livan is to be expected to pitch his customary 200 innings, we are going to have to concede a loss pretty much every time he pitches.  Think about it, in order to keep "project Livan" on track, we are going to have to allow him to <em>average</em> 6 2/3 innings per start for 30 starts.  So Gardy can't go pulling him after 2 innings and 5 runs, or else why do we have him?  I am pretty sure this topic is a dead horse, but I haven't had the chance to rant about it.  Didn't the guy sport a nifty 5+ era in the NL? Imagine what he will post facing the Tigers and Indians over and over again.  Not only does he have a high era, but he gives up lots of homers: Hafner, Martinez, Seizmore, Cabrera, Magglio, Sheffield, and so on.  So when he pitches it will basically go: Livan 5 or 6 innings,  giving up lots of runs then bring in brian bass or someone to finish the game. I guess it conserves our pitchers, but KNOWING you will be down big early every 5th game can't help clubhouse morale.  If we are already down a few runs after the top of the first, the offense might start trying to hard, and things will just unravel.  I like the idea of using a 10 man double rotation or something. Tony LaRussa did it when he managed in the AL, and he only has a few rings, whatever.  Think of it this way, Baker and Bonser could be traditional starts, ideally pitching 6 or 7 quality innings.  Then for the other three starts, the "starter" innings are split up between Slowey, Blackburn, Humber, Liriano (for a few months, then he becomes a traditional starter), and Perkins. So starting around May or June we have 3 normal starters (Baker, Bonser, Liriano) and 4 "tag team starters (Slowey, Blackburn, Humber, Perkins). This will allow the 4 younger guys to basically have a season long competition for the rotation in 2009.  Just a few thoughts.

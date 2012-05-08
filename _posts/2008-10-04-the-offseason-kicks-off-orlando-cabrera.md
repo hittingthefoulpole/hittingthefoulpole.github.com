@@ -1,0 +1,11 @@
+---
+layout: post
+title: ! 'The Offseason Kicks Off: Orlando Cabrera?'
+tags: []
+status: publish
+type: post
+published: true
+meta: {}
+author: sirsean
+---
+The offseason starts early this year for the Twins, and the rumors have already started swirling. With shortstop a major weakness for the Twins, and the White Sox predictably being handled by the Rays, the <a href="http://www.mlbtraderumors.com/2008/10/twins-intereste.html">first Twins rumor</a> is that <a href="http://blogs2.startribune.com/blogs/christensen/2008/10/03/offseason-target-series-leading-off-orlando-cabrera/">we're targeting Orlando Cabrera</a>.<br /><br />My initial reaction: Good idea, and in fact I'd been thinking about this for a while; Cabrera dislikes the White Sox and has been outspoken about how the Twins are a team and clubhouse that are the model for teams everywhere. Unsurprisingly, this has not improved his standing in Ozzie's eyes, and he almost certainly won't be extended in Chicago. And he'd definitely be an upgrade over what we're currently getting out of our shortstops!<br /><br />After letting it sink in for a bit: Cabrera turns 34 in November and only hit .281/.334/.371 this season. Edgar Renteria showed us that shortstops can hit the wall <i>really</i> fast in their mid-thirties, and given that a multi-year big-money contract would be required, it's kind of a big risk. Also, while I appreciate the fact that he doesn't fit in the White Sox clubhouse, he has a history of being a disruptive element in every clubhouse and has rarely been liked by his fellow players. Guys with that kind of reputation aren't exactly who you want to target -- and OC's was built over the last 15 years in professional baseball, unlike Delmon Young's which happened in a brief couple of years when he should have been hidden away in college.<br /><br />Nick Punto hit .284/.344/.382 this season. Seriously. If we go after Cabrera, we could be looking at signing a guy <i>who hits worse than Punto</i> and is <i>at best marginally better in the field</i> to a 3 year, $30 million contract.<br /><br />Wild Bill would be wise to look elsewhere for a shortstop. Perhaps Rafael Furcal, if the bidding doesn't go too crazy.<br />

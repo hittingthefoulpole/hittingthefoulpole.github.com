@@ -1,0 +1,20 @@
+---
+layout: post
+title: Wednesday News and Notes
+tags: []
+status: publish
+type: post
+published: true
+meta:
+  _edit_last: '3'
+author: FunBobby
+---
+<a href="http://www.twinsfanatnicks.blogspot.com">Nick and Nick</a> have an interesting take on the whole Washburn nonsense today.  The suggest that if the Twins are so desperate to sign a pitcher with "veteran" in front of his name, they should go after Ben Sheets.  I like the idea.  Although I don't think they will, because our rotation is set, but lets think about this.  Washburn is set to make 10.3 million next year.  If we were to trade for him we would have to pick up at least half of that.  Considering that Washburn is terrible and has no upside, what is the point?  Haven't they learned from the Sidney Ponson's of the world?  The closer we get to pitchers and catcher, the cheaper someone like Sheets will be.  He will probably be available on a one year deal, for around the same, or less, as Washburn.  Sheets has tremendous upside and even if he pitches 100 innings will probably be worth more than washburn.  We have enough depth in the rotation, that if (when) he goes down he can be replaced with someone good. 
+
+I do not think this will happen.  I'm just saying, that if this team really wants "veteran" leadership, why not get someone who is not only a veteran, but also a good pitcher?  See how these crazy Washburn rumors affect me?   I think whoever gets Sheets, will be getting a hell of a deal.   However, the Twins are having enough problems making room for their pitchers (namely Bonser and Humber) that adding someone as risky as Sheets will force us to get rid of someone who could be a very reliable reliever/spot starter.  Obviously we should pass on adding any starting pitching.   As you all know, I do not support handing people jobs based on past performance, but all five of those guys deserve to be in our starting rotation on opening day.
+
+This might be the worst post I have ever written, but it was written over about two hours intermittently, so my train of thought is off.  So to summarize:  we shouldn't add a starting pitcher just because we think we need "veteran" leadership.  When will we start calling Baker a "veteran"?  I know he looks like he is 12, but c'mon.  IF the team for some reason feels the need to add a "veteran" presence, instead of paying an expensive, no upside guy, why not sign an expensive high upside guy if the price is similar?
+
+Obviously not much else is going on in Twins land these days.  We discussed the cheap signing of Ty Wigginton.  It looks like the Twins are going to go into spring training with the roster they had last year.  I'm not comfortable with the fact that there aren't too many competitions going on in spring training.  I feel that always brings out the best.  The OF competition should be interesting.  Obviously all four guys will make the team, hopefully Gardy gives them all equal reps in spring training.  This year might be the first year in a long time where Gardy really has to "manage" game in and game out.  We have a platoon at third, and a platoon of sorts in the OF.  In the past (for the most part) the lineup was "set it and forget it".  No he has to consider matchups each game.  The third base platoon should be fairly straigh forwards.  Harris against lefties, Buscher against righties.  The OF will be a little bit more work.  He will have to look at how players have faired against certain pitchers.  This will be difficult since three of them (Young, Gomez, Span) have very limited major league experience, therefore can't possibly have much of a track record against anyone.  I'm afraid Cuddyer will unfairly be favored and instead of 4 guys rotating through 3 positions, it will be 3 rotating through 3.  The DH spot will probably be open against most lefites, and Young or Cuddyer and step in on those days, and then the outfield will be set by default.
+
+What other roster spots are guys competing for?  Is it just the utility infielder?  I would assume Tolbert is far and away the leader for that spot.
